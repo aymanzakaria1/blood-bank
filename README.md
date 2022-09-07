@@ -1,1 +1,14 @@
 # blood-bank
+
+
+
+
+
+
+
+
+##project notes
+
+
+
+
